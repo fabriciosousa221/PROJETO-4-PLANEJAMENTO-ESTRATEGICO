@@ -9,9 +9,7 @@ Visão:Ser reconhecida como a melhor doceria da região, referência em sabor, q
 
 Valores:
 
-Sabor e qualidade: 
-
-priorizar o uso de ingredientes frescos e de alta qualidade para garantir o sabor único dos doces.
+Sabor e qualidade: priorizar o uso de ingredientes frescos e de alta qualidade para garantir o sabor único dos doces.
 
 
 Carinho e cuidado: preparar cada doce com amor e atenção aos detalhes, como se fosse para a família.
