@@ -19,20 +19,23 @@ Desenvolver uma linha de produtos exclusivos e personalizados para ocasiões esp
 Criar um programa de fidelidade para recompensar os clientes mais frequentes.
 Implementar práticas sustentáveis na produção e embalagem dos doces.
 Tornar a Doceria do Fafá uma referência em doces artesanais na região.
-Planos de Ação:
 
+Planos de Ação:
 Marketing:
 Criar um site e perfis nas redes sociais para divulgar os produtos e promoções.
 Realizar parcerias com influenciadores locais para aumentar a visibilidade da marca.
 Participar de eventos gastronômicos e feiras para apresentar os doces ao público.
+
 Vendas:
 Oferecer um atendimento personalizado e acolhedor, buscando entender as necessidades de cada cliente.
 Criar promoções e combos especiais para atrair novos clientes e fidelizar os antigos.
 Implementar um sistema de delivery eficiente para atender aos pedidos online.
+
 Produção:
 Investir em equipamentos modernos e de alta qualidade para otimizar a produção.
 Capacitar a equipe para garantir a padronização e excelência dos produtos.
 Desenvolver novas receitas e combinações de sabores para surpreender os clientes.
+
 Gestão:
 Implementar um sistema de gestão financeira para controlar os custos e aumentar a lucratividade.
 Criar um ambiente de trabalho positivo e motivador para os colaboradores.
