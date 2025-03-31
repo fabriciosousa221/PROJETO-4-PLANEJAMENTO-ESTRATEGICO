@@ -21,23 +21,15 @@ Alegria e celebração: criar um ambiente acolhedor e festivo, onde cada cliente
 
 
 Inovação e criatividade: buscar constantemente novas receitas e combinações de sabores para surpreender os clientes.
-Compromisso e responsabilidade:
 
-agir com ética e transparência, valorizando os colaboradores e a comunidade.
+
+Compromisso e responsabilidade:agir com ética e transparência, valorizando os colaboradores e a comunidade.
 
 
 Metas de Longo Prazo:Expandir a doceria para novas unidades, alcançando um público maior.
-
-
 Desenvolver uma linha de produtos exclusivos e personalizados para ocasiões especiais.
-
-
 Criar um programa de fidelidade para recompensar os clientes mais frequentes.
-
-
 Implementar práticas sustentáveis na produção e embalagem dos doces.
-
-
 Tornar a Doceria do Fafá uma referência em doces artesanais na região.
 
 
