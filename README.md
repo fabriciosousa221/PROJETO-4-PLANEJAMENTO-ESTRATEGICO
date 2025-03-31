@@ -7,13 +7,12 @@ Visão:
 Ser reconhecida como a melhor doceria da região, referência em sabor, qualidade e atendimento acolhedor.
 Valores:                                                                                                                                                                                            
 
-Sabor e qualidade: priorizar o uso de ingredientes frescos e de alta qualidade para garantir o sabor único dos doces.
-Carinho e cuidado: preparar cada doce com amor e atenção aos detalhes, como se fosse para a família.
-Alegria e celebração: criar um ambiente acolhedor e festivo, onde cada cliente se sinta especial.
-Inovação e criatividade: buscar constantemente novas receitas e combinações de sabores para surpreender os clientes.
-Compromisso e responsabilidade: agir com ética e transparência, valorizando os colaboradores e a comunidade.
-Metas de Longo Prazo:
-
+Sabor e qualidade:                                                                                                                                                                                         priorizar o uso de ingredientes frescos e de alta qualidade para garantir o sabor único dos doces.
+Carinho e cuidado:                                                                                                                                                                                          preparar cada doce com amor e atenção aos detalhes, como se fosse para a família.
+Alegria e celebração:                                                                                                                                                                                       criar um ambiente acolhedor e festivo, onde cada cliente se sinta especial.
+Inovação e criatividade:                                                                                                                                                                                    buscar constantemente novas receitas e combinações de sabores para surpreender os clientes.
+Compromisso e responsabilidade:                                                                                                                                                                             agir com ética e transparência, valorizando os colaboradores e a comunidade.
+Metas de Longo Prazo:                                                                                                                                                                                       
 Expandir a doceria para novas unidades, alcançando um público maior.
 Desenvolver uma linha de produtos exclusivos e personalizados para ocasiões especiais.
 Criar um programa de fidelidade para recompensar os clientes mais frequentes.
