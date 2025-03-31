@@ -26,7 +26,9 @@ Inovação e criatividade: buscar constantemente novas receitas e combinações 
 Compromisso e responsabilidade:agir com ética e transparência, valorizando os colaboradores e a comunidade.
 
 
-Metas de Longo Prazo:Expandir a doceria para novas unidades, alcançando um público maior.
+Metas de Longo Prazo:
+
+Expandir a doceria para novas unidades, alcançando um público maior.
 Desenvolver uma linha de produtos exclusivos e personalizados para ocasiões especiais.
 Criar um programa de fidelidade para recompensar os clientes mais frequentes.
 Implementar práticas sustentáveis na produção e embalagem dos doces.
