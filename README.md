@@ -21,7 +21,7 @@ Implementar práticas sustentáveis na produção e embalagem dos doces.
 Tornar a Doceria do Fafá uma referência em doces artesanais na região.
 
 Planos de Ação:
-Marketing:
+Marketing:  
 Criar um site e perfis nas redes sociais para divulgar os produtos e promoções.
 Realizar parcerias com influenciadores locais para aumentar a visibilidade da marca.
 Participar de eventos gastronômicos e feiras para apresentar os doces ao público.
